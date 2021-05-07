@@ -1,5 +1,0 @@
-- 👋 henlo :3 i’m @RidgewayPlus
--  i’m interested in computers, ipods, and audio
--  currently looking at learning c++
--  i’m looking to collaborate on nothing at the moment
--  if you wanna have a chat then please add me on discord or send me and email (email will be added soon)
