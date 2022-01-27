@@ -1,5 +1,3 @@
-- 👋 henlo :3 i’m @RidgewayPlus
--  i’m interested in computers, ipods, and audio
--  never going to learn how to code
--  i’m looking to collaborate on nothing at the moment
--  if you wanna have a chat then please add me on discord or send me an email (delilah@ridgewayplus.codes)
+hello i am epic
+add me on discord (Delilah#0002)
+your mother!!!!!!!!!!!!
