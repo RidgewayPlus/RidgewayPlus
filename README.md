@@ -1,3 +1,1 @@
-hello i am epic
-add me on discord (Delilah#0002)
-your mother!!!!!!!!!!!!
+G'day, I'm Delilah.
